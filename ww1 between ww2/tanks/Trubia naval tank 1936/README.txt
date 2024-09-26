@@ -1,0 +1,1 @@
+Trubia "naval" m1936 tank by navalgijon on Thingiverse: https://www.thingiverse.com/thing:4011132

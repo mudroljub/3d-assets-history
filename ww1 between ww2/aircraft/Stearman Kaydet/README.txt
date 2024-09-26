@@ -1,0 +1,1 @@
+Stearman Kaydet 1:120 scale by decapod on Thingiverse: https://www.thingiverse.com/thing:4307485

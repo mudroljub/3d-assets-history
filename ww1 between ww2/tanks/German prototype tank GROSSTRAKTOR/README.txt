@@ -1,0 +1,1 @@
+German prototype tank GROSSTRAKTOR by HaxenJo on Thingiverse: https://www.thingiverse.com/thing:3507382
