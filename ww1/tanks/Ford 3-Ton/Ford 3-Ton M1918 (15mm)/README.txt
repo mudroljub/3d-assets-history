@@ -1,0 +1,1 @@
+Ford 3-Ton M1918 - 15mm / 1:100 scale by Fjodin on Thingiverse: https://www.thingiverse.com/thing:4846099

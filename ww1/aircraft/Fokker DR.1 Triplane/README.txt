@@ -1,0 +1,1 @@
+Fokker DR.1 Triplane by DigitalTargeter on Thingiverse: https://www.thingiverse.com/thing:49033

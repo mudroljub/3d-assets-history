@@ -1,0 +1,1 @@
+Lanchester Armored car 1/100 scale by Jeremycon on Thingiverse: https://www.thingiverse.com/thing:3362435

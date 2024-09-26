@@ -1,0 +1,1 @@
+Sopwith Camel Biplane Scale Model by Benjijart on Thingiverse: https://www.thingiverse.com/thing:4228878

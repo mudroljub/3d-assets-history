@@ -1,0 +1,1 @@
+Curtiss P-1 Hawk - Interwar Biplane (1/72) by Erich_with_an_H on Thingiverse: https://www.thingiverse.com/thing:2862687
