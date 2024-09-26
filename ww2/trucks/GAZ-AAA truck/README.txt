@@ -1,0 +1,1 @@
+GAZ-AAA wartime truck 1:87 (H0) by AIM4 on Thingiverse: https://www.thingiverse.com/thing:3420851

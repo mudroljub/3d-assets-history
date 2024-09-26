@@ -1,0 +1,1 @@
+Opel Blitz 3t truck by FMWP on Thingiverse: https://www.thingiverse.com/thing:2961790
