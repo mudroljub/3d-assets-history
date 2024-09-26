@@ -1,0 +1,1 @@
+Soviet WW2 BA-64 Armoured Car by Seret on Thingiverse: https://www.thingiverse.com/thing:4541014

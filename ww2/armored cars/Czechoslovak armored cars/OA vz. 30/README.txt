@@ -1,0 +1,1 @@
+Armoder vehicle OA vz. 30 / Pz.Spw.30 (t) by Jirka_ on Thingiverse: https://www.thingiverse.com/thing:5177279

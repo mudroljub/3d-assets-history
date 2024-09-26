@@ -1,0 +1,1 @@
+BEDFORD OXA 30 CWT ARMOURED TRUCK by pichichus on Thingiverse: https://www.thingiverse.com/thing:6038654

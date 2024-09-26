@@ -1,0 +1,1 @@
+1/35_ŠKODA 1,5L MOD. 1932 - SCALE MODEL by Jirka_ on Thingiverse: https://www.thingiverse.com/thing:5776571

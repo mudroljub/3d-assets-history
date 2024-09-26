@@ -1,0 +1,1 @@
+BRITISH ARMORED CAR, MK3, WWII (1:56, ~28mm) by sigmazero on Thingiverse: https://www.thingiverse.com/thing:2851268

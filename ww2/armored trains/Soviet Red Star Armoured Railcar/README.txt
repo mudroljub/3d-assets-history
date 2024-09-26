@@ -1,0 +1,1 @@
+Soviet Red Star Armoured Railcar (Historical) by pemberton_a on Thingiverse: https://www.thingiverse.com/thing:5414166

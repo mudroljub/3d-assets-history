@@ -1,0 +1,1 @@
+Tatra OA vz.30 Armoured Car by deweycat on Thingiverse: https://www.thingiverse.com/thing:2962678

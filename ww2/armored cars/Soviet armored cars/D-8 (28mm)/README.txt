@@ -1,0 +1,1 @@
+D-8 Armored Car 1/56 1:56 28mm by ChillyT on Thingiverse: https://www.thingiverse.com/thing:5170097

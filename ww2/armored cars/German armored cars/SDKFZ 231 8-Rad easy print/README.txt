@@ -1,0 +1,1 @@
+SDKFZ 231 8-Rad easy print by WindhamGraves on Thingiverse: https://www.thingiverse.com/thing:4739005

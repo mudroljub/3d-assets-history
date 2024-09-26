@@ -1,0 +1,1 @@
+BA-11 Soviet heavy armored car by Ramzay1945 on Thingiverse: https://www.thingiverse.com/thing:6176751
