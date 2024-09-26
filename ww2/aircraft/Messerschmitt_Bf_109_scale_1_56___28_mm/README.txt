@@ -1,0 +1,1 @@
+Messerschmitt Bf 109 scale 1/56 = 28 mm for WarGames WW2 by Kolo33 on Thingiverse: https://www.thingiverse.com/thing:184594
