@@ -1,0 +1,1 @@
+Yugoslavian M3a3 Pak 40 SPG - 28mm by deweycat on Thingiverse: https://www.thingiverse.com/thing:3023564

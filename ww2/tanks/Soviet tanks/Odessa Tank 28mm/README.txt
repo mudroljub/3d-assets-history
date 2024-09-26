@@ -1,0 +1,1 @@
+Soviet "Odessa Tank" WW2 28mm by deweycat on Thingiverse: https://www.thingiverse.com/thing:2804017

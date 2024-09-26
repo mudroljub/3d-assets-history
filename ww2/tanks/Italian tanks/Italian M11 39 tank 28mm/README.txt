@@ -1,0 +1,1 @@
+Italian M11/39 tank 28mm scale by deweycat on Thingiverse: https://www.thingiverse.com/thing:2822104

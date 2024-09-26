@@ -1,0 +1,15 @@
+		                  Hull	                Track	                Turret	                        Engine ex.
+Carden-Loyd Mk.VIII		  Carden-Loyd	        Carden-Loyd	        Vickers Argentina turret	short
+Vickers Mk.I		          Carden-Loyd	        Vickers Mk.1	        Vickers Mk.2B turret	        long
+Vickers Mk.IA experimental (2mg)  Vickers Mk.2B	        Vickers Mk.1	        Vickers Mk.1A exp	        long
+Vickers Mk.IIA		          Vickers Mk.2B	        Carden-Loyd	        Vickers Mk.2A Indian turret	long
+Vickers Mk.IIB		          Vickers Mk.2B	        Vickers Mk.2B	        Vickers Mk.2B turret	        long
+Vickers Mk.III		          Vickers Mk.3	        Vickers Mk.2B	        Vickers Mk.3 turret	
+Belgian T-15		          Vickers T-15	        Vickers Mk.2B	        Vickers T-15 turret	        long
+Swiss		                  Vickers Swiss	        Vickers Mk.2B	        Vickers Swiss turret 1	        short
+Swiss special		          Vickers Swiss	        Vickers Swiss Special	Vickers Swiss turret 2	        short
+Dutchman		          Vickers Dutchman	Vickers Mk.2B	        Vickers Dutchman turret	        short 2
+Latvia		                  Vickers Latvia	Vickers Mk.2B	        Vickers Latvian turret	        short 2
+Finland		                  Vickers  Finland	Vickers mod. 1933 track	Vickers Argentina turret	
+Lithuanian		          Vickers Lithuanian	Vickers mod. 1933 track	Vickers Argentina turret	
+Argentine		          Vickers  Argentine	Vickers Mk.2B	        Vickers Argentina turret	short 2

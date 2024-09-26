@@ -1,0 +1,1 @@
+Yugoslav Somua S.35 6pdr by Kugelblatz on Thingiverse: https://www.thingiverse.com/thing:6237536
